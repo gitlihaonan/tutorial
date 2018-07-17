@@ -1,3 +1,5 @@
 CR7 7.10
 
-Real Madrid cf.
+Real Madrid cf. 2018.7.16
+
+Done
